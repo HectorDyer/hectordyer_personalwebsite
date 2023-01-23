@@ -16,8 +16,11 @@ This outdoor installation tells the story of the handloom weavers in Paisley, Sc
 Handloom weaving is a repetitive action which takes its toll on the body. Like other manual trades, the physical disabilities this leads to can become viewed as ‘part of the job’. I wanted this installation to bring  to life these stories of human connection and support, and be a space to reflect on the role of our bodies in the labour we do.
  
 The artworks were woven and embroidered by hand. They are made from cotton and were manually waxed to prepare them for the outdoors.
+You can see a video of me talking about the work [here.](https://www.youtube.com/watch?v=EQzCTgDY1RQ) 
  
-Alongside this, I ran weaving workshops with the Disability Resource Centre in Paisley where we explored the connections between our bodies and the looms. This project was supported by Sustrans Scotland’s Art and Diversity programme using funding from Transport Scotland.
+Alongside this, I ran weaving workshops with the Disability Resource Centre in Paisley where we explored the connections between our bodies and the looms. 
+
+This project was part of Sustrans celebration of Disability History Month. It was supported by Sustrans Scotland’s Art and Diversity programme using funding from Transport Scotland. 
  
 The technical build for this installation was designed by Guy Titterington and installed by Guy and Sandy Christie. 
 
