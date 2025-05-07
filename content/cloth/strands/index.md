@@ -10,5 +10,6 @@ images: ['']
 ---
 2021 - ongoing
 
-These woven pieces are in response to my research around Cranial Sacral Therapy and fascia - the interconnecting tissue under the skin which allows bones, muscles and fibres to move. The fascia moves on its own accord, like a matrix of the nervous system. It is also the site where stress, trauma and tension gets stored within the body. 
+These woven pieces relate to my research of body systems and in particular the fascia which is the interconnecting tissue under the skin. It allows allows bones, muscles and fibres to move and can be thought of as a web that stretches across the entire body. When one piece gets taut or twisted, the whole web is affected. Think of a sheet of silk - if you crinkle or pressurise a certain area that tension affects the entire sheet. 
+The fascia wants to be soft and supple, to absorb stress and move with the body. But it is also the site where stress, trauma and tension gets stored within the body. 
 I think of this with the process of weaving, intersecting one thread with another. The systems that are created through this. And what happens when these threads are broken, frayed or placed under too much tension.
