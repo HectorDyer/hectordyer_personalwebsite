@@ -10,7 +10,7 @@ images: ['']
 ---
 2020 - ongoing
 
-I am interested in medical history, how our bodies can become viewed or compared to machines and the consequences of this. Disassembling and reassembling the body, looking at different methods of healing are my main focuses at the moment.
+I am interested in how our bodies can become viewed or compared to machines and the consequences of this. 
 
-I work with discarded pieces of second-hand cloth which I view as living beings. The process of making and reassembling these scraps is another form of healing and realignment.
+I work with discarded pieces of second-hand cloth, dissecting and then reassembling these scraps.
 
