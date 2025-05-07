@@ -23,4 +23,6 @@ Studio MaBa (Baiba Sprance & Marco Berardi) created a 7 minute film of the perfo
 Anahí Saravia Herrera created a zine with the participants all about the process and ideas that emerged. She hand-printed 50 copies of them - there are copies in the British Library, Hackney Showroom's Library as well as the N4 Library in Finsbury Park. 
 To help access to this publication, Anahi also created digital versions of the zine in English and in Turkish. [Here](https://drive.google.com/file/d/1Ysueyco2ZwxuapxSoWXsDcHNZWCRtG4q/view) is a link the English version.
 
+The photographs on this page are by Jemima Yong. There were so many that could have been chosen - a fair few more are in the Zine.
+
 
