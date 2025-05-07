@@ -18,7 +18,9 @@ We talked about the role of individuals and communities against the climate emer
 
 From these conversations, we created a series of performances around the estate. We thought of them as different ‘stations’ that people could discover on a live journey.
 
-[Here's](https://shorturl.at/l1313) a short extract of the full film.
-https://shorturl.at/l1313
+Studio MaBa (Baiba Sprance & Marco Berardi) created a 7 minute film of the performance which can be viewed [here](https://drive.google.com/file/d/1KN9OcJHZmIU4V7OU_JZ6UCzyM0ojo0Wj/view). This was exhibited at the Grant Museum, UCL, along with the costumes made by Chell Young.
+
+Anahí Saravia Herrera created a zine with the participants all about the process and ideas that emerged. She hand-printed 50 copies of them - there are copies in the British Library, Hackney Showroom's Library as well as the N4 Library in Finsbury Park. 
+To help access to this publication, Anahi also created digital versions of the zine in English and in Turkish. [Click here]((https://drive.google.com/file/d/1Ysueyco2ZwxuapxSoWXsDcHNZWCRtG4q/view)) to see the English version.
 
 
