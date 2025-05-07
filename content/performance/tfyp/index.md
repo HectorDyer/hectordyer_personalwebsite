@@ -9,12 +9,7 @@ thumbnail: '/performance/tfyp/tfyp.JPG'
 images: ['']
 ---
 
-Produced by Hackney Showroom, directed by Sam Curtis Lindsay, with dramaturgical support from Nina Lyndon. This performance is currently being redeveloped. It explores how we communicate to the future and the legacies we are leaving behind.
-With funding from Arts Council England, Nesta Future Fest and the Nuclear Culture Research Group, it has previously been performed at:
+This performance is currently being redeveloped.
 
-Future Fest London, June 2019 | 
-Ikonst Malmo, Sweden, July 2018​ | 
-Hackney Showroom, July 2018 | 
-​Theatre de Mentilmontant, Paris, June 2018
 
 
