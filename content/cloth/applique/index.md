@@ -9,4 +9,4 @@ thumbnail: '/cloth/applique/01_app1.jpg'
 images: []
 ---
 
-These works have been made as commissions or exchanges for specific people. With appliqué, I tend to use second-hand or discarded leather, latex and denim. 
+With appliqué, I tend to use second-hand or discarded leather, latex and denim. 
